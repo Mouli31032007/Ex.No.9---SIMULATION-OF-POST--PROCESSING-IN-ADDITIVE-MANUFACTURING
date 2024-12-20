@@ -62,7 +62,7 @@
 ![WhatsApp Image 2024-12-05 at 10 57 09_d9b54422](https://github.com/user-attachments/assets/ef8454ab-faff-4df3-bf58-07887e825694)
 
 
-### Name:S.MOULODHARAN
+### Name:S.MOULIDHARAN
 ### Register Number:24901036
 
 ## Result: 
